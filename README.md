@@ -1,0 +1,2 @@
+# Avana-parts
+2x1 HDMI 2.0 Switch with Audio Extractor Support 4K and HDR HDMI Switcher HDMI Audio Converter Include IR Remote - https://www.wish.com/product/5e09d35b807f5b55ecb4464d?hide_login_modal=true&amp;from_ad=goog_shopping&amp;_display_country_code=US&amp;_force_currency_code=USD&amp;pid=googleadwords_int&amp;c=%7BcampaignId%7D&amp;ad_cid=5e09d35b807f5b55ecb4464d&amp;ad_cc=US&amp;ad_curr=USD&amp;ad_price=27.00&amp;campaign_id=7203534630&amp;gclid=EAIaIQobChMImMj7jqmW6QIVA-DICh14Uw9PEAQYCCABEgKBavD_BwE&amp;share=web
